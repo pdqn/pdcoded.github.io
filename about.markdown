@@ -15,8 +15,8 @@ There are two problems that excite me the most, and I spend a lot of time on::
 2) Architecting Tools and Platforms to lower the barrier to use AI/ realise the potential of AI.
 
 
-Music is something that allows me to connect with people easily. Huge fan (not limited to) of Radiohead, U2, DireStraits, Pink Floyd, Arcade Fire - You can find my Spotify profile [here](https://open.spotify.com/user/prabhudatta?si=45ab750a215445d1)
+Music is something that allows me to connect with people easily. Huge fan (not limited to) of Radiohead, Coldplay, DireStraits, Pink Floyd, Arcade Fire - You can find what I am listening to [here](https://open.spotify.com/user/prabhudatta?si=45ab750a215445d1)
 
-If you want to talk to me, shoot me an email at <prabhudatta.das09@gmail.com>
+If you want to reach out to me, please drop me an [email](mailto:prabhudatta.das09@gmail.com)
 
 
